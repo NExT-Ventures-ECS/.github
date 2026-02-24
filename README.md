@@ -1,1 +1,0 @@
-# Next Ventures Education & Consultancy
